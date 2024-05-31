@@ -1,2 +1,2 @@
 # Emilly-Casanova-Souza
-Sou estudante 
+Sou estudante 👩‍🎓
